@@ -1,1 +1,1 @@
-# Derick-
+# Derick-hello good day mr/ mrs am Derick, am having a serious issue with my copay account, I can not recover my funds in my old copay wallet,I mistakenly save 11 Recovery phrase at of 12 Recovery phrase, so I can’t get access to my bitcoin, please help me am going insane.
